@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @justinzwick
 - 👀 I’m interested in marketing, automation, AI, & design
 - 💞️ I’m looking to collaborate on pretty much anything interesting
-- 📫 How to reach me 
+- 📫 How to contact me 
   - 📧  get@justinzwick.com
   - 🌐  [justinzwick.com](justinzwick.com) 
   - 📱  +1-|-[714]-|-576-|-6762
